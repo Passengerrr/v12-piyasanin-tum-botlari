@@ -1,6 +1,9 @@
 # Tüm Discordun v12 Botları :D
 bir çoğunu elledim bozdum ettim falan hatırlamıyorum 1 yıl önceki botlar bunlar bazılarını güzel editlemiştim bulan kullanır şuanki bir çok v13 ve 14 yapan ben full sinek mevelobır diye gezen abilerden daha iyiler :D birçoğunun ismi orada zaten çalma vs konusu yok görüp rahatsız olan yazabilir silerim sorun yok hata varsa ulaşabilirsiniz sunucu üzerinden rica ediyorum botları kendinmi yaptın demeyin aldım ve editledim bu kdr. tokenleri hala var ama boş hepsi invalid ziplerin arasında bi client var oda hediyem kullanımını bilen ekmeğini yer fix yemediyse :D
 
+# 40 Stara daha farklı botlar gelir ona göre
+|:
+
 # Uzun süredir neredeydin?
 normal işler güçler reel hayat vs bu zamandan itibaren buradayım ulaşmak isteyen ins ve dcden ulaşır iyi günler iyi kullanımlar <3
 
